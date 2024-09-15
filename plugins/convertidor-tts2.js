@@ -3,7 +3,7 @@
         [ ❗ ] CREDITOS - NO MODIFICAR [ ❗ ]
 
            Codigo hecho por @BrunoSobrino
-       Github: https://github.com/BrunoSobrino
+       Github: https://www.instagram.com/letelier7.dsng
        
        Nota: Solo hay disponibles efectos en
        ingles, por lo que el texto en otros
